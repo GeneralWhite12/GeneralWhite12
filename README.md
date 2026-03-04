@@ -6,4 +6,3 @@ Cusando 2/3 ano Des.sistemas
 Inglês intermediário 
 Informatica 
 
-## 
